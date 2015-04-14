@@ -3,7 +3,7 @@
 
 ### 執筆してくださる方、募集中です
 
-ご興味ある方は、"Contact Author"から。zehi
+ご興味ある方は、"Contact Author"から。zehi zehi
 
 
 ### 雑誌のコンセプト
